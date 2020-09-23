@@ -18,9 +18,10 @@
 ![https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/1.png](https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/1.png)
 
 ![https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/2.png](https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/2.png)
-![https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/2.png](https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/2.png)
 
 # 最后
 ## 欢迎炒币玩现货股票的朋友一起交流，感兴趣的朋友可以拉到信号群里一起赚钱。
 ## 可以扫下面的二维码添加我的微信
 ![https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/3.png](https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/3.png)
+![https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/4.png](https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/4.png)
+![https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/5.png](https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/5.png)
