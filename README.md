@@ -15,4 +15,4 @@
 以下为简单的界面和源码截图
 
 
-
+![https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/1.png](https://github.com/h88z/WechatBot_for_DigitalCurrency/blob/master/1.png)
